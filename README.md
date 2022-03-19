@@ -11,3 +11,6 @@ https://mega.nz/folder/spoGDToC#zjYFlRAU7S06u5jSaQnvYw
 
 # Youtube Premium Videos Leaked 
 https://drive.google.com/drive/folders/1yf6tLtsmGDCAbZXWYRDsaV6ffnecSiiM?usp=sharing
+
+# Full Web Ethical Hacking Course
+https://mega.nz/folder/9xFl3D5C#xQ0AnUsSPsHaqBf75kaTcw/folder/wx9lBKjD
